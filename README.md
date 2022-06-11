@@ -1,0 +1,2 @@
+# Akmal-uchun
+# Abror uchun
